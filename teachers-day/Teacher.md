@@ -13,3 +13,4 @@ Section 4: _Conversations with teacher_
 Section 5: _Appreciation of teacher_
 
 Section 6: _Summary and well wishes_
+(idea used by regina)
