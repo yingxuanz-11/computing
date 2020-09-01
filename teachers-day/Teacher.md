@@ -2,7 +2,7 @@
 
 **Section 1: _First impression of teacher_**
 
-(about how fierce she looked?)
+(about how fierce and intimidating she looked?)
 
 **Section 2: _First lesson with teacher_**
 
