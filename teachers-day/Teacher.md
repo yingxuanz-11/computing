@@ -1,4 +1,8 @@
+**A Short Story on Mdm Sim, our Chinese Language teacher**
+
 Section 1: _First impression of teacher_
+
+
 
 Section 2: _First lesson with teacher_
 
