@@ -1,4 +1,4 @@
-**A Short Story on Mdm Sim, our Chinese Language teacher**
+**A Short Story on Mdm Sim, our Higher Chinese Language teacher**
 
 **Section 1: _First impression of teacher_**
 
@@ -6,11 +6,11 @@
 
 **Section 2: _First lesson with teacher_**
 
-(how we did the 自我介绍, and how she laughed along and was interested in what we were saying and seems friendly and nice?)
+(how we did the 自我介绍 and how she laughed along. She was interested in what we were saying and seems friendly and nice?)
 
 **Section 3: _Subsequent lessons with teacher_**
 
-(how she has great confidence in us that we would do well, and how she engages the class a lot and told stories and opinions which are interesting)
+(how she has great confidence in us that we would do well, and how she engaged the class a lot and told stories and opinions which are interesting)
 
 **Section 4: _Conversations with teacher_**
 
